@@ -27,6 +27,6 @@ Full Stack Web Development
 English Speaking Course 2023
 
 📫 Connect with me
-Location:** Layyah, Punjab, Pakistan
+Location: Layyah, Punjab, Pakistan
 Email: noreen.batool.1717@gmail.com
 LinkedIn: (https://www.linkedin.com/noreen-batool)
